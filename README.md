@@ -1,0 +1,1 @@
+A detail-oriented Front-End Developer and Web Designer with 8+ years of web industry experience. A fast learner with a low tolerance for slow websites. Passionate about writing clean, efficient code. 
